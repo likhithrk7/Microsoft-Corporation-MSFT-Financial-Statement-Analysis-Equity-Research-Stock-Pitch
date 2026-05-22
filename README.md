@@ -72,5 +72,5 @@ Educational project only. Not investment advice.
 
 ## 👤 Author
 
-**[Your Name]** | Finance Student | Aspiring Financial Analyst  
-[LinkedIn](https://linkedin.com/in/yourprofile) · [Email](mailto:your@email.com)
+Likhit Ravi Kumar | Finance Student | Aspiring Financial Analyst  
+[LinkedIn](https://www.linkedin.com/in/likhitkumar09/) · [Email](l_ravikumar1@u.pacific.edu)
